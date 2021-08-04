@@ -1,0 +1,1 @@
+Aconselho abrir a imagem em uma nova guia para visualizão completa
